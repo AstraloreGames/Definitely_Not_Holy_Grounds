@@ -1,0 +1,13 @@
+*.rpyc
+*.rpyb
+*.log
+*.swp
+.DS_Store
+thumbs.db
+/log.txt
+/game_log.txt
+/backtrace.txt
+/errors.txt
+/tmp
+/traceback.txt
+/game/saves
