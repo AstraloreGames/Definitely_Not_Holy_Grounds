@@ -41,28 +41,28 @@ Gateway to Hell opens under maid cafe
 Perfect butler that may or may not be from hell???
 
 
-Perfect butler Bryan 
+Perfect butler Bryan
 
-clumsy maid – arsonist SATAN 
+clumsy maid – arsonist SATAN
 
-loan shark vampire werewolf named Rin 
+loan shark vampire werewolf named Rin
 
 
 Archangel Michael infiltrates butler cafe
 
-Tsundere Dino 
+Tsundere Dino
 
-small depressed zombie Brian 
+small depressed zombie Brian
 
 Vampire leader Vlad – dinosaur????  
 
-Depressed skeleton named Braan 
+Depressed skeleton named Braan
 
-Maid named Yane the Yandere 
+Maid named Yane the Yandere
 
 # Characters
 
-Felix - protag, a boy who crossdresses as a maid for his job at a maid cafe
+Elliot - protag, a boy who crossdresses as a maid for his job at a maid cafe
 
 Perfect butler Bryan – Archangel Michael
 
@@ -117,27 +117,27 @@ Cross earrings, lip ring?
 
 Tall with weak shrimpy arms and washboard abs
 
-feminine hands 
+feminine hands
 
 Being near each other negates their powers
 
 # Plotline
 
-Felix is going to work and sees a butler cafe has opened next door :o
+Elliot is going to work and sees a butler cafe has opened next door :o
 
-Bryan sees handsome boi Felix and tries to recruit for butler cafe
+Bryan sees handsome boi Elliot and tries to recruit for butler cafe
 
-Felix cries and runs away to work
+Elliot cries and runs away to work
 
-Satan comforts Felix & threatens Bryan
+Satan comforts Elliot & threatens Bryan
 
-Bryan comes in to cafe & sees cutie Felix, does not recognize :o drama!!!!!
+Bryan comes in to cafe & sees cutie Elliot, does not recognize :o drama!!!!!
 
-Bryan bets Satan that Felix will like butler cafe job better and Satan wuz liek ur on bro
+Bryan bets Satan that Elliot will like butler cafe job better and Satan wuz liek ur on bro
 
 Satan speaks liek this
 
-Felix can make a choice to work at either cafe
+Elliot can make a choice to work at either cafe
 
 Option 1: Refuses, stays at maid cafe
 
@@ -150,5 +150,3 @@ Satan accidentally burns down maid cafe – if you help her save it, then you ca
 Option 3: Quit your job
 
 Walk the lonely plains of Purgatory forever :’C
-
-
